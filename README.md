@@ -1,1 +1,1 @@
-# 11-class-lyceum_bektur_agay
+# 11-class_yceum_bektur_agay
